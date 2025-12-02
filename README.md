@@ -1,4 +1,8 @@
-- **Miguel Fonseca de Souza** 14anos 🇻🇦🇧🇷
+- **Miguel Fonseca de Souza** 14anos 🇧🇷
+- escritor 📝
+- pinturas 🌇
+- leitura 📖
+- tradicionalista 🇻🇦
 - Colégio ciico militar **Manoel Ribas** 9°
 - miguel.fonseca.souza@escola.pr.gov.br
 

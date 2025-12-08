@@ -1,4 +1,4 @@
-- **Miguel Fonseca de Souza** 14anos 🇧🇷
+- **Miguel Fonseca de Souza** 14 anos 🇧🇷
 - escritor 📝
 - pinturas 🌇
 - leitura 📖

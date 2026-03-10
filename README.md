@@ -4,7 +4,7 @@
 - desenhista
 - leitura 📖
 - tradicionalista 🇻🇦.
- ![](https://media1.tenor.com/m/jxSabp7sVQcAAAAd/papa-papa-le%C3%A3o-xiv.gif)
+   ![](https://media1.tenor.com/m/jxSabp7sVQcAAAAd/papa-papa-le%C3%A3o-xiv.gif)
 
 - miguel.fonseca.souza@escola.pr.gov.br
 ![](https://media1.tenor.com/m/kiulCpkMKU8AAAAC/going-crazy.gif)

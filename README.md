@@ -2,6 +2,7 @@
 - Colégio ciico militar **Manoel Ribas** 1°
 - escritor 📝
   ![](![](https://media1.tenor.com/m/GTE9_j1-xGIAAAAC/why.gif)
+  
 - desenhista
 - leitura 📖
 - tradicionalista 🇻🇦

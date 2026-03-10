@@ -4,7 +4,8 @@
 - desenhista
 - leitura 📖
 - tradicionalista 🇻🇦.
-![](https://media1.tenor.com/m/IsOjwSs6gk8AAAAd/crusader-knight.gif)
+
+- ![](https://media1.tenor.com/m/IsOjwSs6gk8AAAAd/crusader-knight.gif)
 
 - miguel.fonseca.souza@escola.pr.gov.br
 
